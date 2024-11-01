@@ -1,5 +1,5 @@
 <aside>
-💡 Inspired by [vxnuaj](https://x.com/vxnuaj)
+💡 Inspired by vxnuaj on X: https://x.com/vxnuaj
 </aside>
 
 ---
